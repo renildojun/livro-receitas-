@@ -4,6 +4,6 @@
 
 - Acarajé com vatapá, camarão e salada. 
 
-- 
+- Abará com vatapá camarão e salada.
 - 
 
